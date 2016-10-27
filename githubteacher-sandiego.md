@@ -9,3 +9,5 @@
 - For some reason it is as loud as NYC in my neighborhood.
 
 ### Places to Go
+- Balboa Park
+- Coronado Island
