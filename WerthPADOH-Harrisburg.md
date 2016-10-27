@@ -6,5 +6,6 @@
 -   The Millworks
 
 ### Fun facts
+-   Capitol of Pennsylvania
 
 ### Places to go
