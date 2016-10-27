@@ -7,3 +7,4 @@
 -All energy in Atlantis is telepathically beamed into it by Dolphins.
 
 ### Places to Go
+-Seaweed Everglades
