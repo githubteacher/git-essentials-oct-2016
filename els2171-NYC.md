@@ -7,3 +7,4 @@
 - Really big
 
 ### Places to Go
+- Statue of Liberty
